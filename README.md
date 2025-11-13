@@ -4,6 +4,9 @@
 
 ###
 
-<p align="center">" ᴅᴀɴᴄᴇ ᴏᴜʀ ʟᴀꜱᴛ ᴅᴀɴᴄᴇ "</p>
+<p align="center"> Rip to my twins </3 </p>
+ <p align="center"> Roland 🕊️🌹 Angela 🕊️🌹 Argalia 🕊️🌹 Netzach 🕊️🌹 Hod 🕊️🌹 Yesod 🕊️🌹 Malkuth 🕊️🌹 Gebura 🕊️🌹 Chesed 🕊️🌹 Tiphereth 🕊️🌹 Chesed 🕊️🌹 Binah 🕊️🌹 Hokma 🕊️🌹 Tommy 🕊️🌹 Merry 🕊️🌹 Carmen 🕊️🌹 Ayin 🕊️🌹 Pierre 🕊️🌹 Jack 🕊️🌹 Olga 🕊️🌹 Yan 🕊️🌹 Sayo 🕊️🌹 Elieen 🕊️🌹 Phillp 🕊️🌹 The Puppeteer 🕊️🌹 The Blood-Red Knight 🕊️🌹 Xiao 🕊️🌹 Nemo 🕊️🌹 Greta 🕊️🌹 Myo 🕊️🌹 Lori 🕊️🌹 Zena 🕊️🌹 Baral 🕊️🌹 Olivier 🕊️🌹 </p>
+
+
 
 ###
